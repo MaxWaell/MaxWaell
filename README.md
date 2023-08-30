@@ -6,3 +6,9 @@ Tenho liderado squads multidisciplinares no desenvolvimento e sustentação de p
 Sou formado em Administração pela PUC-SP, cadastro ativo no CRA-SP sob o número 153311, pós-graduado em Gestão de Produtos através da Universidade Celso Lisboa em parceria com o Business Behavior Institue of Chicago e, atualmente, estou me especializando em Novas Tecnologias, Transformação Digital e Agilidade pela FIA.
 
 E mesmo já sendo formado, pelo interesse em me aprofundar no mundo tech, resolvi iniciar a segunda graduação em Engenharia de Software pela FIAP, tendo previsão de cnclusão em agosto de 2028.
+
+
+Att,
+Max.
+
+<<LinkedIn: https://www.linkedin.com/in/maxwaelloliveira/>>
